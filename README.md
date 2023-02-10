@@ -5,4 +5,4 @@
 3. Do not allow your children to do something that will make you hate them.
 4. Put your house first in order.
 6. Tell the truth or atleast do not lie.
-7. End.
+7. Endclcl
